@@ -10,3 +10,4 @@ Trainees are responsible for feeding and grooming Bill They know when he needs t
 Bill and Patricia live in zone 1
 pat likes to eat billies poop and lick her pussy
 billie likes to suck Bills dick
+billie pretends to be asleep at night when Bill sneaks up and sniffs her pussy Bill loves the smell of her pussy and ass through her panties She lets him lick her pussy and eat her poop Patricia does not know
